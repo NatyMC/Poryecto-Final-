@@ -1,2 +1,2 @@
 # Proyecto-Final-
-Proyecto final, Nataly Montoya Campos, Ashley Jump Bustamante
+Proyecto final, realizado por Nataly Montoya Campos, Ashley Jump Bustamante
